@@ -16,11 +16,11 @@ i am a very chill person but i'm still learning to manage my emotions properly s
 > ## interests!
 > object shows (tnm, ONE, bfdi)
 >
-> anime (**dunmeshi**, assassination classroom, jjba, bocchi the rock, madoka magica, pokemon, apothecary diaries, your lie in april)
+> anime (**dunmeshi**, assassination classroom, jjba, madoka magica, pokemon)
 >
 > xenofiction (warriors, **wings of fire**, **guardians of ga'hoole**, silverwing)
 >
-> games (**sky: cotl**, pokemon, **casualties: unknown**, ddlc, bugsnax, ace attorney)
+> games (**sky: cotl**, pokemon, **casualties: unknown**, ace attorney)
 >
 > ***please recommend robot and monster characters to me. i love painter so much it hurts /hj. rotom dex indirectly saved my life. i'm also very fond of the robots in bfdi. i have the mechanical minds pin on my school backpack :)***
 
