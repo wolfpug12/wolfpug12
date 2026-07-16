@@ -1,5 +1,5 @@
 <p align="center">
-<img width="191" height="163" alt="painter-painter-pressure" src="https://github.com/user-attachments/assets/b9b33cb4-5685-4b9b-9cfb-1a3a6a5b98b9" />
+<img width="191" height="163" alt="painter-painter-pressure" src="https://github.com/user-attachments/assets/53558a77-8784-404a-8f3e-4939a64cfebf" />
 
 <p align="center">
 orion!
@@ -20,22 +20,20 @@ i am a very chill person but i'm still learning to manage my emotions properly s
 >
 > xenofiction (warriors, **wings of fire**, **guardians of ga'hoole**, silverwing)
 >
-> games (**sky: cotl**, pokemon, **casualties: unknown**, ddlc)
+> games (**sky: cotl**, pokemon, **casualties: unknown**, ddlc, bugsnax, ace attorney)
 >
-> music (mitski, AURORA, FLAVOR FOLEY, tally hall, the smiths,)
->
-> ***please recommend robot and monster characters to me. i love painter so much it's not even funny. rotom dex indirectly saved my life. i'm also very fond of the robots in bfdi. i have the mechanical minds pin on my school backpack :)***
+> ***please recommend robot and monster characters to me. i love painter so much it hurts /hj. rotom dex indirectly saved my life. i'm also very fond of the robots in bfdi. i have the mechanical minds pin on my school backpack :)***
 
 <p align="center">
-<img width="498" height="281" alt="rotom-rotomdex" src="https://github.com/user-attachments/assets/b20d45c9-7cfe-4e25-baaf-69444d819704" />
+<img width="398" height="225" alt="rotom-rotomdex" src="https://github.com/user-attachments/assets/b20d45c9-7cfe-4e25-baaf-69444d819704" />
+<img width="398" height="225" alt="rotom-rotomdex (1)" src="https://github.com/user-attachments/assets/709de4fc-b293-4c25-ba78-a2f2ba185f57" />
+
 
 > ## dni
 > 
 > basic dni criteria
 >
 > people who use the r slur under any circumstance
->
-> system fakeclaimers
 >
 > people who police others on their personal identity
 
