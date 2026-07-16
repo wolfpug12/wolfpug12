@@ -22,6 +22,8 @@ i am a very chill person but i'm still learning to manage my emotions properly s
 >
 > games (**sky: cotl**, pokemon, **casualties: unknown**, ace attorney)
 >
+> i am looking for other sky: cotl enjoyers! it is my current hyperfixation. i love season of performance, season of passage, season of duets, the two embers, and speculating about the currently very vague lore. i also love franticperformance and duetscellist. my enby lesbians ever
+>
 > ***please recommend robot and monster characters to me. i love painter so much it hurts /hj. rotom dex indirectly saved my life. i'm also very fond of the robots in bfdi. i have the mechanical minds pin on my school backpack :)***
 
 <p align="center">
@@ -33,6 +35,13 @@ i am a very chill person but i'm still learning to manage my emotions properly s
 > i don't really have any strong boundaries regarding pony town other than to respect me. i mostly just see it as a chat room where you can move around to other parts of the chat room with an avatar. if i weren't open to interacting with strangers, i wouldn't be playing a public game alone in the first place (though i will still respect others' boundaries if they don't share my perspective. i'm not an asshole). i don't care if you get close to me unless you're very obviously trying to make me uncomfortable. i'm okay with people sitting next to me, but if you aren't sure, i'm always open to whispers
 >
 > i am shy. most of the time i'll only initiate interactions with people i'm unfamiliar with through whispers, and mostly just to compliment their avatar. HOWEVER please feel free to just talk to me in public chat!
+
+<p align="center">
+<img width="249" height="141" alt="duets hug" src="https://media1.tenor.com/m/mhYkaB0GBuUAAAAd/hug-duets-guide.gif" />
+<img width="192" height="144" alt="sky-cotl-sky-children-of-the-light (1)" src="https://github.com/user-attachments/assets/0609f98b-0221-4667-bd11-501cd9746f2a" />
+<img width="150" height="150" alt="performance-guide-sky-cotl" src="https://github.com/user-attachments/assets/697fa6cf-f7f3-4962-b671-fae7734a3d77" />
+<img width="174" height="130" alt="the-two-embers-sky-children-of-the-light" src="https://github.com/user-attachments/assets/5f7d7d2f-698f-4060-9fb8-e2297bfa31f6" />
+
 
 > ## dni
 > 
