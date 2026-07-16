@@ -28,6 +28,11 @@ i am a very chill person but i'm still learning to manage my emotions properly s
 <img width="249" height="141" alt="rotom-rotomdex" src="https://github.com/user-attachments/assets/b20d45c9-7cfe-4e25-baaf-69444d819704" />
 <img width="249" height="141" alt="rotom-rotomdex (1)" src="https://github.com/user-attachments/assets/709de4fc-b293-4c25-ba78-a2f2ba185f57" />
 
+> ## pony town
+>
+> i don't really have any strong boundaries regarding pony town other than to respect me. i mostly just see it as a chat room where you can move around to other parts of the chat room with an avatar. if i weren't open to interacting with strangers, i wouldn't be playing a public game alone in the first place (though i will still respect others' boundaries if they don't share my perspective. i'm not an asshole). i don't care if you get close to me unless you're very obviously trying to make me uncomfortable. i'm okay with people sitting next to me, but if you aren't sure, i'm always open to whispers
+>
+> i am shy. most of the time i'll only initiate interactions with people i'm unfamiliar with through whispers, and mostly just to compliment their avatar. HOWEVER please feel free to just talk to me in public chat!
 
 > ## dni
 > 
@@ -39,7 +44,4 @@ i am a very chill person but i'm still learning to manage my emotions properly s
 >
 > yourfriendzeal defenders
 
-
-
-https://github.com/user-attachments/assets/5879b43b-41e6-4645-a6f9-d87101b0f99e
-
+![Alt text](https://spotify-recently-played-readme.vercel.app/api?user=31vykmn3cn56etglfpl2u5g2laxi)
