@@ -8,7 +8,10 @@ orion!
 they/them
 
 <p align="center">
-i'm neurodivergent and a minor pls be nice to me
+minor
+
+<p align="center">
+medically recognized audhd and whatever else i got going on unofficially
 
 <p align="center">
 i am a very chill person but i'm still learning to manage my emotions properly so don't intentionally make me upset ok? ok
