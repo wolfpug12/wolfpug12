@@ -17,7 +17,7 @@ medically recognized audhd and whatever else i got going on unofficially
 i am a very chill person but i'm still learning to manage my emotions properly so don't intentionally make me upset ok? ok
 
 > ## interests!
-> object shows (tnm, ONE, bfdi)
+> object shows (tnm, ONE, bfdi, object show 87, burner)
 >
 > anime (**dunmeshi**, assassination classroom, jjba, madoka magica, pokemon)
 >
