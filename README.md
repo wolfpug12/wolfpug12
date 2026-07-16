@@ -36,6 +36,8 @@ i am a very chill person but i'm still learning to manage my emotions properly s
 > people who use the r slur under any circumstance
 >
 > people who police others on their personal identity
+>
+> yourfriendzeal defenders
 
 
 
