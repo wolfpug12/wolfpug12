@@ -8,7 +8,7 @@ orion!
 they/them
 
 <p align="center">
-minor
+minor (teen)
 
 <p align="center">
 medically recognized audhd and whatever else i got going on unofficially
