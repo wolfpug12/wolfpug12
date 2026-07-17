@@ -55,5 +55,7 @@ i am a very chill person but i'm still learning to manage my emotions properly s
 > people who police others on their personal identity
 >
 > yourfriendzeal defenders
+>
+> under 13. i have nothing against you but children scare me
 
 ![Alt text](https://spotify-recently-played-readme.vercel.app/api?user=31vykmn3cn56etglfpl2u5g2laxi)
