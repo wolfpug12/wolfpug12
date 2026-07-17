@@ -58,4 +58,6 @@ i am a very chill person but i'm still learning to manage my emotions properly s
 >
 > under 13. i have nothing against you but children scare me
 
+[![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=31vykmn3cn56etglfpl2u5g2laxi&cover_image=true&theme=spotify-embed&show_offline=true&background_color=121212&interchange=false&profanity=false&hide_remaster=false&bar_color=53b14f&bar_color_cover=false&mode=dark)](https://github.com/kittinan/spotify-github-profile)
+
 ![Alt text](https://spotify-recently-played-readme.vercel.app/api?user=31vykmn3cn56etglfpl2u5g2laxi)
