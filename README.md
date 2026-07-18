@@ -35,7 +35,9 @@ i am a very chill person but i'm still learning to manage my emotions properly s
 
 > ## pony town
 >
-> i don't really have any strong boundaries regarding pony town other than to respect me. i mostly just see it as a chat room where you can move around to other parts of the chat room with an avatar. if i weren't open to interacting with strangers, i wouldn't be playing a public game alone in the first place (though i will still respect others' boundaries if they don't share my perspective. i'm not an asshole). i don't care if you get close to me unless you're very obviously trying to make me uncomfortable. i'm okay with people sitting next to me, but if you aren't sure, i'm always open to whispers
+> i don't really have any strong boundaries regarding pony town other than to respect me. i mostly just see it as a chat room where you can move around to other parts of the chat room with an avatar. if i weren't open to interacting with strangers, i wouldn't be playing a public game alone in the first place (though i will still respect others' boundaries if they don't share my perspective. i'm not an asshole). i don't care if you get close to me unless you're very obviously trying to make me uncomfortable. i'm okay with people cuddling or hiding, but if you aren't sure, i'm always open to whispers
+>
+> i would prefer if you didn't flirt with me (even ironically or in-character) unless i know you well
 >
 > i am shy. most of the time i'll only initiate interactions with people i'm unfamiliar with through whispers, and mostly just to compliment their avatar. HOWEVER please feel free to just talk to me in public chat!
 
@@ -51,6 +53,8 @@ i am a very chill person but i'm still learning to manage my emotions properly s
 > basic dni criteria
 >
 > people who use the r slur under any circumstance
+>
+> zionists
 >
 > people who police others on their personal identity
 >
