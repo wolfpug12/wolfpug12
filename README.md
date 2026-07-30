@@ -8,6 +8,12 @@ orion!
 they/them
 
 <p align="center">
+eng/esp (no hablo español con fluidez, ¡pero me hablas en español por favor! ¡¡necesito practicar!!)
+
+<p align="center">
+medically recognized audhd and whatever else i got going on unofficially
+
+<p align="center">
 minor (teen)
 
 <p align="center">
