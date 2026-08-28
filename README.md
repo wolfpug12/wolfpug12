@@ -29,7 +29,7 @@ i am a very chill person but i'm still learning to manage my emotions properly s
 >
 > xenofiction (warriors, **wings of fire**, **guardians of ga'hoole**, silverwing)
 >
-> games (**sky: cotl**, pokemon, **casualties: unknown**, ace attorney, **rain world**)
+> games (**sky: cotl**, pokemon, rain world, **rhythm doctor**)
 >
 > i am looking for other sky: cotl enjoyers! it is my current hyperfixation. i love season of performance, season of passage, season of duets, the two embers, and speculating about the currently very vague lore. i also love franticperformance and duetscellist. my enby lesbians ever
 >
