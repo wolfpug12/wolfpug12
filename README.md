@@ -5,7 +5,7 @@
 orion!
 
 <p align="center">
-they/them
+they/them, masc or genderneu terms preferred
 
 <p align="center">
 eng/esp (no hablo español con fluidez, ¡pero me hablas en español por favor! ¡¡necesito practicar!!)
