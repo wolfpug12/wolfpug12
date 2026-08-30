@@ -43,6 +43,16 @@ i am a very chill person but i'm still learning to manage my emotions properly s
 > i would prefer if you didn't flirt with me (even ironically or in-character) unless i know you well
 >
 > i am shy. most of the time i'll only initiate interactions with people i'm unfamiliar with through whispers, and mostly just to compliment their avatar. HOWEVER please feel free to just talk to me in public chat!
+>
+> skins i use often!
+> 
+> <img width="106" height="124" alt="pony-town-IM THE 1 THAT NEEDS SOME HELP!-trot-blinking-padded-2x" src="https://github.com/user-attachments/assets/7dae374c-ab01-4a1e-a51d-f1f7579cde1d" />
+> <img width="112" height="136" alt="pony-town-🌸 prince (kin)(RW)-trot-blinking-padded-2x" src="https://github.com/user-attachments/assets/5ed4d0e9-04bb-49a1-82d8-560f0f080f93" />
+> <img width="108" height="122" alt="pony-town-once it sees you it&#39;s gameover-trot-blinking-padded-2x" src="https://github.com/user-attachments/assets/bce271c7-5ac8-4483-b975-3d8a80709f17" />
+> <img width="124" height="112" alt="pony-town-what are you made out of_-trot-blinking-padded-2x" src="https://github.com/user-attachments/assets/60277594-1a07-4bc7-a593-4e03fcd49dda" />
+>
+> ada paige (rhythm doctor), prince (rain world), 2763 (x finds out his value), anonymous monster character
+
 
 <p align="center">
 <img width="249" height="141" alt="duets hug" src="https://media1.tenor.com/m/mhYkaB0GBuUAAAAd/hug-duets-guide.gif" />
